@@ -22,7 +22,20 @@ Description.
 ## Lyrics
 
 ```
+they're aiming for the tears through corridors of veins 
+pulsing out your name in braille bursting through the pain
+call it what it is
 
+all the seers twisting tales world listening to them like they're real
+stay true to what mind is hinting, asserting/setting goals for yourself
+i know coz i'm feeling what they make you feel
+i know coz i'm feeling what they make you feel
+make you feel, coz they make you feel aye
+
+praise for the living i'll say not
+"create for the breathing ones" she say it for the love
+praise for the living i'll say not
+"create for the breathing ones" she say it for the love
 
 ```
 
